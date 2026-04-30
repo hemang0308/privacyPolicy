@@ -1,0 +1,2 @@
+# privacyPolicy
+Jashn Privacy Policy
